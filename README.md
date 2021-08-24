@@ -4,7 +4,7 @@ This is Emanuel, and this is my ghProfile, a person who keeps working in to cont
 
 ## What I love ❤:
 
-I love learning from others and by myself, I love languages and I love to find people where we can share good vibes and energies ✨ I also love tech, AI, coding, playing music, and the entrepreneurship.
+I love learning from others and by myself, I love languages and I love finding people where we can share good vibes and energies ✨ I also love tech, AI, coding, playing music, and the entrepreneurship.
 
 
 ## Find me on Instagram and Twitter 😀:
