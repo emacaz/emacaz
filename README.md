@@ -1,3 +1,3 @@
 # Emanuel Castillo
-Sofware Developer Engineer
+Entrepreneur - I love coding but I'd rather coffee
 [More about me](https://EmanuelCastillo.com) - [Portfolio](http://emacaz.github.io/)
