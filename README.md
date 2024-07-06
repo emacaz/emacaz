@@ -1,3 +1,3 @@
 # Emanuel Castillo
-Entrepreneur - I love coding but I'd rather coffee
-[LinkedIn](https://www.linkedin.com/in/emacastillozam/)
+Founder of Lingua-VR.com: The Future of Personalized Learning 
+[Qué es LinguaVR](https://www.lingua-vr.com/)
